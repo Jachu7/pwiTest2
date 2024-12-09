@@ -1,3 +1,3 @@
 
 
-Najelpszy napoj: sok jablkowy
+Najelpszy napoj: sok pomidorowy
